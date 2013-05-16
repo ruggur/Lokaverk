@@ -1,0 +1,1 @@
+//Nú erum við að tala saman
